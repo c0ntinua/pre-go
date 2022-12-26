@@ -11,3 +11,12 @@ To me this system is more a sculpture than a tool, though the contstraint of it 
 
 
 ![pre-1](https://user-images.githubusercontent.com/90075803/209585437-51484621-0484-4bc3-a098-7a3785c8c514.png)
+
+![pre-3](https://user-images.githubusercontent.com/90075803/209585567-b8e5f526-1ae9-4a9c-b618-70d843e3110a.png)
+
+![pre-5](https://user-images.githubusercontent.com/90075803/209585576-96a8c31a-592f-4cc6-8b29-bc2af8476e19.png)
+
+![pre-6](https://user-images.githubusercontent.com/90075803/209585585-b63442d8-c197-4b95-b33b-f1bda1dceead.png)
+
+![pre-8](https://user-images.githubusercontent.com/90075803/209585598-5f0a68fe-8d91-4762-bc03-882d10fc4249.png)
+
